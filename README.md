@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LucasFe02
+- 👀 I’m interested in creating Paradox mods.
+- 🌱 I’m currently learning Polish.
